@@ -8,4 +8,4 @@ README.md
 🎀🎀🎀🎀🎀
 - 🤝🏻 &nbsp; In 2024 I was assualted and had to get abortion access while living in a appealed Roe. V. Wade United States. It was terrifying, but I learned I was NEVER alone.
 - 🎓 &nbsp; Im currently getting my 2nd degree to work in Womens Health, as well as a sociology minor to help see how to advance the knowledge of Reproductive access for my community. 
-## See my links for more info! Thanks! 🎀🎀🎀🎀🎀
+## See my links for more info! Thanks! 🎀🎀🎀🎀🎀 (this is a Academic project being run for the month of April, 2026)
