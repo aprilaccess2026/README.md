@@ -1,7 +1,7 @@
 README.md
 ### Hi there 👋
 🎀🎀🎀🎀🎀
-## I'm Roe! Im 26 and live in a Safe Haven State. 
+## I'm Roe! Im an Adult and live in a Safe Haven State. 
 ## If you are experiencing a Emergency, please call 911, 988, and 800,656,4673 for the RAINN hotline in situations of Rape and Sexual abuse. 
 🎀🎀🎀🎀🎀
 ### 💻 &nbsp;About Me 
